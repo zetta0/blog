@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Hey guys! I am a Cybsersecurity Engineer.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I hope something I share on here is helpful for everyone!
